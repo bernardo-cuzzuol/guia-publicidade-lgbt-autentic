@@ -50,3 +50,11 @@ Maior lealdade: 77% dos consumidores preferem comprar de empresas que apoiam a d
 
 Este repositório defende que, quando a prática interna é coerente com o discurso externo, as marcas deixam de ser meras vendedoras para se tornarem aliadas confiáveis na construção de uma sociedade mais justa
 
+10 campanhas LGBTQIAPN+ para conhecer no Mês do Orgulho - Agência Mutum
+Link: https://agenciamutum.com/
+
+Entre erros e acertos, marcas avançam no marketing LGBT | Exame
+Link: https://exame.com/marketing/erros-acertos-marcas-marketing-lgbt/
+
+Poder de compra da população LGBT+ confirma potencial econômico da comunidade | ASN Nacional - Agência Sebrae de Notícias
+Link: https://agenciasebrae.com.br/economia-e-politica/poder-de-compra-da-populacao-lgbt-confirma-potencial-economico-da-comunidade/
